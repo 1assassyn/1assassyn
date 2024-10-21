@@ -1,6 +1,6 @@
 - 👋 Hi, I’m bodhi
 - 👀 I’m interested in cybersecurity, but mainly just computer systems as a whole
-- 🌱 I’m currently learning java
+- 🌱 I’m currently learning whatever i can
 - 💞️ I’m looking to collaborate on idk whatever yall want
 - 📫 How to reach me - discord @trapmode or instagram @1assassyn
 - 😄 Pronouns: he/him
